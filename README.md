@@ -5,4 +5,4 @@
 <div align="center">
 ────୨ৎ────
   
-<sub>[__strawpage__](https://guilty-pleasure.straw.page)
+NO STAWPAGE I FUCKING DELITED IT BY ACCIDENT 
